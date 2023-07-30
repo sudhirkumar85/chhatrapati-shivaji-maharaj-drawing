@@ -1,1 +1,1 @@
-# chhatrapati-shivaji-maharaj-drawing
+# Chhatrapati-shivaji-maharaj-drawing
